@@ -43,4 +43,4 @@ It leverages:
 ## 📬 Contact
 
 **Sabina Momtaj**  
-[LinkedIn](linkedin.com/in/sabina-momtaj) | sabinamomtaj8@gmail.com
+[LinkedIn](www.linkedin.com/in/sabina-momtaj) | sabinamomtaj8@gmail.com
